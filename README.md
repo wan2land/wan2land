@@ -2,7 +2,6 @@
 
 👆👆 **what is this?** 👉 [corgi.photos](https://corgi.photos) 🙌
 
----
 
 **👇👇 Guest Book 👇👇**
 
